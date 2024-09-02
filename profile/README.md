@@ -8,9 +8,10 @@ La influencer británica Sondra y carlos se quita las bragas en la calle para 'a
 La grabación, que mostraba a ambos simulando una relación sexual, provocó una lluvia de críticas en redes sociales y cuestionamientos sobre su conducta profesional, ya que se encontraba en uniforme oficial.
 
 
-Mira el vídeo ✅👉 https://parade.today/viral-leaked-video-watch-download-free-online/
+Mira el vídeo ✅👉 [https://parade.today/viral-leaked-video-watch-download-free-online/](https://parade.today/noticias/sondra-y-carlos-video-viral/)
 
-Mira el vídeo ✅👉 https://parade.today/viral-leaked-video-watch-download-free-online/
+Mira el vídeo ✅👉 [https://parade.today/viral-leaked-video-watch-download-free-online/](https://parade.today/noticias/sondra-y-carlos-video-viral/)
+
 
 
 ¿Quién es la mujer del video Sondra y carlos?
